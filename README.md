@@ -1,0 +1,1 @@
+# laborat10.github.io
